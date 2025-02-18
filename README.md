@@ -8,4 +8,4 @@ Meu nome é Larissa Mesquita
 
 - no momento o livro que estou com vontade de reeler é honestamente sinceramente de Bruna Zielinski,Esse livro é mais do que um romance, é uma história de desenvolvimento pessoal, que aos poucos os personagens aprendem a se comunicar e a expressar os sentimentos de forma que não magoem um ao outro, é muito fofo ver a evolução deles ao decorrer dos capítulos, e se comparar os primeiros capítulos com os últimos, o carinho é nítido, é tudo muito afetivo, estou amando o livro até o momento que li.
 
-![](https://tenor.com/pt-BR/view/jinx-the-best-gif-2612604530998071416)
+
